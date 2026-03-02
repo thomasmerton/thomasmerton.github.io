@@ -8,7 +8,7 @@ Ultimo aggiornamento: 2 marzo 2026
 Il titolare del trattamento è:
 
 Mattia Negrini
-Email: support@havenapp.it
+Email: havenappinfo@proton.me
 
 ⸻
 
